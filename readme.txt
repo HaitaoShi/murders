@@ -1,0 +1,1 @@
+tell myself or others what this project is about. It's like a notebook. 
